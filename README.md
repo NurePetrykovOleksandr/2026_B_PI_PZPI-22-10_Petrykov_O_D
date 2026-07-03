@@ -1,1 +1,1 @@
-# 2026_B_PI_PZPI-22-10_Petrkov_O_D
+# 2026_B_PI_PZPI-22-10_Petrykov_O_D
